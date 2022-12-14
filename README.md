@@ -7,3 +7,5 @@ Features include:
 More features coming soon...
 
 SOURCE CODE FOR SALE AT $50
+
+Discord: Frantic#0009
